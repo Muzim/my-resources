@@ -1,4 +1,4 @@
-# my first resources![]
+# my first resources
 ### 没有针尖麦芒的生活，远离城市喧嚣 
 
 >To be or not to be,that's a question.  
